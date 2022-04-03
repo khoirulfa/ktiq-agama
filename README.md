@@ -1,1 +1,0 @@
-# ktiq-agama
